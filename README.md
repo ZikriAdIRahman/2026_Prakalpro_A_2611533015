@@ -1,1 +1,1 @@
-Halo uni yang menilai tolong kasih nilai 100 ya uni terimakasih uni -Zikri Ganteng
+Halo uni yang menilai, tolong kasih nilai 100 yaa unii terimakasihhh unii -Zikri 
